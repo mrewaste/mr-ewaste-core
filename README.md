@@ -52,7 +52,7 @@ We are actively seeking:
 - Environmental partners
 - Story curators and researchers
 
-Open a PR, issue, or reach out to [hello@mrewaste.art](mailto:hello@mrewaste.art)
+Open a PR, issue, or reach out to [officialmrewaste@gmail.com](mailto:officialmrewaste@gmail.com)
 
 ---
 
